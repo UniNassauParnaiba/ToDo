@@ -1,1 +1,1 @@
-#teste
+Hoje é sexta-feira
